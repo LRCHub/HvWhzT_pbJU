@@ -1,0 +1,121 @@
+# GloRilla – TGIF
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+GloRilla
+On gang, gang
+Huh, huh, huh, huh
+(Chaii's hard)
+Ayy
+It's 7 p.m. Friday (Yup)
+It's ninety-five degrees (Woo)
+I ain't got no nigga
+And no nigga ain't got me
+(Let's go)
+I'm about to show my ass (Pow)
+These niggas love a freak (Huh)
+How the fuck is that your man?
+(Huh)
+If he right here with me
+(The fuck? Ayy)
+Turnt up with my niggas (Ayy)
+Turnt up with my bitches (Ayy)
+Turnt up at my shows, yeah
+Cuzzo got that blicky (Ayy)
+Sixty thousand fans
+came to see me do my dance (Huh)
+Got a million and one haters,
+and they all can kiss my ass
+(Muah)
+Turnt up with my niggas (Ayy)
+Turnt up with my bitches (Ayy)
+Turnt up at my shows, yeah
+Cuzzo right here with me
+(Ayy, Uh)
+Off a fifth of Hen', yeah,
+fucked up with my twin
+Got a Backwood full of 'za
+and a bankroll full of bands
+Out that-,
+out that Twitter typin',
+bitches see me,
+and they do nothin' (Weak ass)
+Crop top with some bikers shoes,
+I'm showin' off my moose knuckle
+(Woo)
+I'm feelin' good today (Yeah)
+I'm outside with your bae
+(Uh-huh)
+Got a brown skin nigga
+with dreads (Okay)
+And a black ass nigga with waves
+(Let's go, ayy)
+He gon' drop that neck (Ayy)
+He love the way I sex (Ayy)
+Fake nails, bitches is pressed
+(Ayy)
+So how I'm down to rant? (Ayy)
+I keep that pussy fresh (Ayy)
+Is his shirt on wet? (Ayy)
+Who want smoke? Say what? (Ayy)
+Ho, get that off your chest
+(The fuck?)
+Turnt up with my niggas (Ayy)
+Turnt up with my bitches (Ayy)
+Turnt up at my shows, yeah
+Cuzzo got that blicky (Ayy)
+Sixty thousand fans
+came to see me do my dance (Huh)
+Got a million and one haters,
+and they all can kiss my ass
+(Mwah)
+It's 7 p.m. Friday (Yup)
+It's ninety-five degrees (Woo)
+I ain't got no nigga
+And no nigga ain't got me
+(Let's go)
+I'm about to show my ass (Baow)
+These niggas love a freak (Huh)
+How the fuck is that your man?
+(Huh)
+If he right here with me? (Eww)
+Friday night, hot as hell,
+and you know the hoes out
+Mani-pedi, fresh set,
+and I got my toes out (Pff)
+I'm rockin' Off-White (Hey),
+on a off night (Uh-huh)
+These bitches with me pretty
+(Yeah), and they all can fight,
+yeah (Ayy)
+Fuck you mean, forty inches,
+six thirteen (Hey)
+I'm lookin' fine as hell (Woah),
+I'm tryna be seen (Duh)
+I'm finna wreck the scene (Huh),
+I'm off the 17 (Hey)
+Turnt up with my nigga'nem,
+watch me do my- (Ah, ah)
+Turnt up with my niggas (Ayy)
+Turnt up with my bitches (Ayy)
+Turnt up at my shows, yeah
+Cuzzo got that blick (Ayy)
+Sixty thousand fans
+came to see me do my dance (Huh)
+Got a million and one haters,
+and they all can kiss my ass
+(Muah)
+It's 7 p.m. Friday (Yup)
+It's ninety-five degrees (Woo)
+I ain't got no nigga
+And no nigga ain't got me
+(Let's go)
+I'm about to show my ass (Pow)
+These niggas love a freak (Eww)
+How the fuck is that your man?
+(Huh)
+If he right here with me?
+Eww, eww, eww, eww
+Eww, eww
+```
